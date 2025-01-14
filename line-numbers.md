@@ -8,7 +8,7 @@
 #### 8
 #### 9 GitHub is really awesome.
 #### 10
-#### 11 Github is really bad.
+#### 11 Github is really trash.
 #### 12
 #### 13
 #### 14
